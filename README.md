@@ -1,0 +1,2 @@
+# PART_1_of_AI_Gesture_APP
+coooooooooooooool dude
